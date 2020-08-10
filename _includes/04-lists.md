@@ -1,1 +1,4 @@
-Replace this with a list of your favorite things.
+1. gameing
+2. hacking
+3. listening song
+4. anime
